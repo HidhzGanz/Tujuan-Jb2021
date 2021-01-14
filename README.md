@@ -1,5 +1,5 @@
 # Tujuan-Jb2021
--Beli Hp sendiri
--Beli Laptop
--Beli Komputer
--Bahagiain Orang tua
+-Beli Hp sendiri (belum)
+-Beli Laptop (belum)
+-Beli Komputer (belum)
+-Bahagiain Orang tua (belum)
